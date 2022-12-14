@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning Computer programming languages such as C program, Python , C++ and much more . On Other side I pull down my mind in AI and how it works for ML along with Robotics.
 - 💞️ I’m looking to collaborate on some Projects and in Search of Some good and helping partners.
 - 📫 How to reach me 
-- Yu can Reach near me on:
+- You can Reach near me on:
 - IG:=itz_piyush_me
 - Tweet:=Alone___x
 - G-mail:=piyush979841@gmail.com
