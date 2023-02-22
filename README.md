@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Itz-Piyush
 - 👀 I’m interested in research and projects along with some upcoming new and interesting field of IT Sector i.e.. specialisation in core streams and their expansions.
-- 🌱 I’m currently learning Computer programming languages such as C program, Python , C++ and much more . On Other side I pull down my mind in AI and how it works for ML along with Robotics.
+- 🌱 I’m currently learning Computer programming languages such as C programming, Python , C++ and much more . On Other side I pull down my mind in AI and how it works for ML along with Robotics.
 - 💞️ I’m looking to collaborate on some Projects and in Search of Some good and helping partners.
 - 📫 How to reach me 
 - You can Reach near me on:
