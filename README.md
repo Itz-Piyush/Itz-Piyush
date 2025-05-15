@@ -7,11 +7,11 @@
 
 - 🌱 I’m currently learning **:- Python || AI || ML**
 
-- 💬 Ask me about **:- C || C++ || Python**
+- 💬 Ask me about **:- C || C++ || Python || OOPS Concept || SQL || Machine Learning**
 
 - 📫 How to reach me **:- piyush979841@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1JFD2XY4JS0w5222Rl-IsVCfl7HsTiMyO/view?usp=sharing](https://drive.google.com/file/d/1JFD2XY4JS0w5222Rl-IsVCfl7HsTiMyO/view?usp=sharing)
+- 📄 Know about my experiences [https://drive.google.com/file/d/1cJ1YHIX04gE7_Sm8BrbxZYsszkqAQORn/view?usp=sharing](https://drive.google.com/file/d/1cJ1YHIX04gE7_Sm8BrbxZYsszkqAQORn/view?usp=sharing)
 
 - ⚡ Fun fact **:- Love Cooking || Hodophile**
 
